@@ -26,7 +26,7 @@
  * Esquire
  * Sulfex
 
-##Special Offers
+## Special Offers
  * EMI available on electric appliances and furniture items.
  * Exchange offers (1 to 1) on select items like gas stoves, mixer grinders, pressure cookers, and more.
  * Discounts up to 40% on select items.
