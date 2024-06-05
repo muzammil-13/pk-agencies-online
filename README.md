@@ -1,18 +1,30 @@
-## Parekkattil Agencies: Your One-Stop Shop for Kitchenware & Home Needs!
-
-Looking to upgrade your kitchen or spruce up your home? Look no further than Parekkattil Agencies! We offer a wide range of high-quality kitchenware and home essentials at affordable prices.
-
-**Here's what we have in store for you:**
-
-* **Essential Kitchenware:** From durable steel utensils to powerful mixer grinders and pressure cookers, we have everything you need to whip up delicious meals.
-* **Comfy Mattresses & Furniture:**  Find the perfect mattress for a restful night's sleep and browse our selection of stylish home furniture. 
-* **Handy Kitchen Accessories:** Keep your kitchen organized and efficient with our collection of kitchen accessories, including fans and other essentials.
-* **Fun for the Kids:** We haven't forgotten the little ones! We carry a variety of toys to keep them entertained.
-* **Cycle Accessories:** Get your bike rolling smoothly with our selection of cycle accessories.
-
-**Plus, enjoy these amazing benefits:**
-
-* **Up to 40% discount** on select items –  furnish your home without breaking the bank!
-* **Exchange offers** on mixer grinders, pressure cookers, and more – trade in your old appliances for new ones at a great price.
-
-Visit Parekkattil Agencies today and discover everything you need to create a beautiful and functional home. Remember, we offer competitive retail prices so you can shop with confidence!
+# Parekkattil Agencies: Your One-Stop Shop for All Your Home Needs
+Parekkattil Agencies is your one-stop shop for everything you need to create a comfortable and functional home. They offer a wide variety of household items, including:
+ * Kitchen Appliances: Gas stoves, ceiling fans, mixer grinders, pressure cookers, rice cookers, induction cookers, kettles, toasters, and more.
+ * Cookware: Casserole containers, non-stick cookware, iron boxes, aluminium vessels, steel vessels, glass vessels.
+ * Furniture: Mattresses, pillows, steel wardrobes, plastic and steel chairs, teapoys, and tables (including study tables).
+ * Other Essentials: Tricycles and toys, water bottles, plastic items, ceramic and melamine vessels, LED bulbs and tubes, and flasks (steel and glass).
+Popular Brands
+ * Butterfly
+ * Prestige
+ * Philips
+ * Sujata
+ * Pigeon
+ * Castor
+ * Ibell
+ * Bajaj
+ * Usha
+ * Crompton
+ * Vguard
+ * Havells
+ * Chakson
+ * Greenchef
+ * Chairman
+ * Friendly
+ * Esquire
+ * Sulfex
+Special Offers
+ * EMI available on electric appliances and furniture items.
+ * Exchange offers (1 to 1) on select items like gas stoves, mixer grinders, pressure cookers, and more.
+ * Discounts up to 40% on select items.
+Visit Parekkattil Agencies today to find everything you need for your home at affordable prices!
