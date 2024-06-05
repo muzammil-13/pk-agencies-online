@@ -30,4 +30,6 @@
  * EMI available on electric appliances and furniture items.
  * Exchange offers (1 to 1) on select items like gas stoves, mixer grinders, pressure cookers, and more.
  * Discounts up to 40% on select items.
+```
 Visit Parekkattil Agencies today to find everything you need for your home at affordable prices!
+```
